@@ -71,11 +71,12 @@ If you believe any content violates your rights, please contact us directly and 
 
 ---
 
-© 2025 **BELLI AIO UNLOCKER** – All Rights Reserved  
-Support: [@BELLIDEV0](https://t.me/BELLIDEV0)  
+© 2025 **BELLI AIO UNLOCKER – All Rights Reserved**  
+For support: [@BELLIDEV0](https://t.me/BELLIDEV0)  
+Telegram Channel: [https://t.me/BelliTools](https://t.me/BelliTools)
 GitHub: [https://github.com/B9yn8](https://github.com/B9yn8)  
 Website: [https://belliactivator.vercel.app](https://belliactivator.vercel.app)  
 YouTube: [@BELLIDEV](https://www.youtube.com/@BELLIDEV)  
-OfficialBot: [@newSignalBOBOT](https://t.me/newSignalBOBOT)
+Payment Bot: [@newSignalBOBOT](https://t.me/newSignalBOBOT)
 
 ---
